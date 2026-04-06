@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAHF060125HASRRRA7
+CAHF060125HASRRRA7
